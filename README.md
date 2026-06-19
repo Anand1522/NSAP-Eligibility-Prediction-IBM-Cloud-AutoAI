@@ -118,8 +118,8 @@ JNTUH University College of Engineering Palair
 
 ### Connect With Me
 
-* LinkedIn: https://linkedin.com/in/b-anand-2531a728a
-* GitHub: https://github.com/YOUR_USERNAME
+* LinkedIn: https://www.linkedin.com/in/bettam-anand/
+* GitHub: https://github.com/Anand1522
 
 ---
 
